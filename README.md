@@ -6,4 +6,4 @@ Saya seorang **Bangkit Cohort 2024 Batch 2** di [Dicoding](https://www.dicoding.
 
 Saya berasal dari **BALI**.<br>
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](www.linkedin.com/in/imadeadiguna05).
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](www.linkedin.com/in/imadeadiguna05/).
